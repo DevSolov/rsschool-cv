@@ -1,3 +1,3 @@
-# MAXIM SOLOVIOV
+# Maxim Soloviov
 
 ## Contacts
